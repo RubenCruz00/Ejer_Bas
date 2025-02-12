@@ -1,1 +1,1 @@
-una extensa descripción del proyecto
+una extensa descripción del proyecto a continuación
